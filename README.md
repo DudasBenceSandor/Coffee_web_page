@@ -1,1 +1,1 @@
-<p>>Lucky Kávézó</p>
+<p>Lucky Kávézó</p>
