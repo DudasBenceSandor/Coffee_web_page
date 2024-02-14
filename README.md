@@ -1,1 +1,2 @@
-Elsőre sikerült !
+Elsőre sikerült ! Sziaaa
+Kávézóra fel!
